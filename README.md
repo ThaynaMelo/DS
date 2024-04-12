@@ -41,7 +41,7 @@ Ensino Médio - Escola Estadual Prof Padre José Narciso Vieira
 Ehrenberg - Paulínia, SP 
 Conclusão 12/2023
 
-Técnico em Desenvolvimento - ETEC-Bento Quirino- cAMPINAS, SP 
+Técnico em Desenvolvimento - ETEC-Bento Quirino- CAMPINAS, SP 
 Conclusão 07/2025
 
 ----
